@@ -23,7 +23,6 @@ socials: ⏔ [guns](https://guns.lol/mewtuna) ⏔ [prns](https://en.pronouns.pag
 
 *I am free to making friends but I usually suck at replying and stuff...*
 
-<img width="1120" height="630" alt="image" src="https://github.com/user-attachments/assets/4ef9554c-20c6-4ded-bd21-8c967d58b2d6" />
 
 
 
