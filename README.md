@@ -1,6 +1,6 @@
 <div align="center">
 
-*Rei/Drea/Mewtuna*  ⏔ ⏔ **minor**　　 　　 　![](https://komarev.com/ghpvc/?username=mewtuna&base=4644&color=bce7ee&style=for-the-badge)
+*Rei/Drea/Mewtuna*  ⏔ ⏔ **minor**　　 　　 　![](https://komarev.com/ghpvc/?username=mewtuna&base=4644&color=lightgrey&style=for-the-badge)
 
 　 　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&cover_image=false&theme=novatorem&show_offline=false&background_color=787878&interchange=true&profanity=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&redirect=true)
 
