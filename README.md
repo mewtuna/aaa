@@ -4,7 +4,7 @@
 
 　 　　[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&cover_image=false&theme=novatorem&show_offline=false&background_color=787878&interchange=true&profanity=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&redirect=true)
 
-**Thin ice: under 13, DNI: over 18**
+**Thin ice: under 13, over 18**
 
 socials: ⏔ [guns](https://guns.lol/mewtuna) ⏔ [prns](https://en.pronouns.page/@WonderfullyNene) ⏔ [ata](https://chickenbootyweezer.atabook.org/) ⏔ [rentry](https://rentry.co/ryu_su) ⏔ [patreon](https://www.patreon.com/cw/Re1i) ⏔ [strawpage](https://ryunosuu.straw.page/) ⏔
 
