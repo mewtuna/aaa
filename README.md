@@ -6,7 +6,7 @@
 
 **Thin ice: under 13, over 18**
 
-socials: ⏔ [guns](https://guns.lol/mewtuna) ⏔ [prns](https://en.pronouns.page/@WonderfullyNene) ⏔ [ata](https://chickenbootyweezer.atabook.org/) ⏔ [rentry](https://rentry.co/ryu_su) ⏔ [patreon](https://www.patreon.com/cw/Re1i) ⏔ [strawpage](https://ryunosuu.straw.page/) ⏔
+socials: ⏔ [guns](https://guns.lol/mewtuna) ⏔ [prns](https://en.pronouns.page/@WonderfullyNene) ⏔ [ata](https://chickenbootyweezer.atabook.org/) ⏔ [rentry](https://rentry.co/ryu_suu) ⏔ [patreon](https://www.patreon.com/cw/Re1i) ⏔ [strawpage](https://ryunosuu.straw.page/) ⏔
 
 *This Github is mainly for Ponytown, but I also got it so I could follow my buddies on here and support them!* 
 
